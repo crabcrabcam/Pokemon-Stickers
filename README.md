@@ -1,4 +1,4 @@
-# Poke-mon-Stickers
+# Pokémon-Stickers
 All pictures 001-720 inc. Mega and alt forms
 
 
