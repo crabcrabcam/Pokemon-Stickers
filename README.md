@@ -2,6 +2,6 @@
 All pictures 001-720 inc. Mega and alt forms
 
 
-![!!!!!POKÉMON!!!!!](http://imgur.com/eoE44Kx)
-![!!!!!POKÉMON!!!!!](http://imgur.com/ftEEYMA)
-![!!!!!POKÉMON!!!!!](http://imgur.com/1ZAvxgz)
+![!!!!!POKÉMON!!!!!](http://i.imgur.com/eoE44Kx.png)
+![!!!!!POKÉMON!!!!!](http://i.imgur.com/ftEEYMA.png)
+![!!!!!POKÉMON!!!!!](http://i.imgur.com/1ZAvxgz.png)
